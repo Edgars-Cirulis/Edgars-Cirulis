@@ -1,4 +1,4 @@
-### Hi there, this is Edgars Cirulis
+### Hi there, this is Edgars 👋
 
 <img src="https://komarev.com/ghpvc/?username=Edgars-Cirulis&style=flat" alt="Edgars-Cirulis" /><br>
 
